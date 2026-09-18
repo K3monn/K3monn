@@ -5,4 +5,4 @@ artificial intelligence.
 
 im currently working on my own startup, CONCAT, check it out.
 
-i like to go out hiking and workout, im an avid pickleball player. im a huge coffee snob, so please feel free to reach out for a coffee chat! 
+i like to go out hiking, workout, and im an avid pickleball player. im a huge coffee snob, so please feel free to reach out for a coffee chat! 
